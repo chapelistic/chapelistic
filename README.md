@@ -1,4 +1,3 @@
-⠀⠀ 
 <p align="center">
 <i>♫ Usuper ፧ NXCRE, The Villains</i>
 </p>
